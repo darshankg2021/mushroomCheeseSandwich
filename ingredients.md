@@ -1,0 +1,1 @@
+*mushroom*,*bread*,*butter*,*cheese slice*,*onion*,*gralic*,*unsalted butter*,*oil*.*pepper*,*salt*
