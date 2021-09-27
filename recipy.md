@@ -1,2 +1,0 @@
-take a oil white sauce pan ,two onions sliced ,add gralic, while onion is transparent ,add mushroom slice ,mix well,after two minutes add some salt and pepper next add one tea spoone of butter ,mix well and water wapouring mushroom become nice and dry ,now let make the sandwich and take two sandwichs and take a spoon of butter speard a little butter in the both the breads,place the spoone of mushroom filling in one slice of bread and speard the filling evenly next place a slice of cheese . place other bread on the top, tast it
-sandwich is ready 
